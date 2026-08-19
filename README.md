@@ -1,2 +1,2 @@
-# jhuzzztb
+nigga
 triggerbot
